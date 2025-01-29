@@ -1,1 +1,1 @@
-# Clube dos Pets
+Entre em contato para mais informações: [gdndmndub@mozmail.com](mailto:gdndmndub@mozmail.com)
